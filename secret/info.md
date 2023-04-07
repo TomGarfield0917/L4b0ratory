@@ -1,1 +1,1 @@
-Our laboratory have 5 genious technician, they are my good friends. You can check those details in the headquarters.
+Stupid Staff, they are all under my control now muahaha !
